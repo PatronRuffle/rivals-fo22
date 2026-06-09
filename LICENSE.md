@@ -1,4 +1,4 @@
-#  
+#  vip rivals Script is the best rivals Script, featuring one-hit kill and speed. Safe and powerful for all your needs.
 
 
 
